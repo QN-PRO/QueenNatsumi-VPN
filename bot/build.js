@@ -1,2 +1,0 @@
-🔥 FUCK 🔥
-🔥 FUCK ISP NETWORK 🔥
